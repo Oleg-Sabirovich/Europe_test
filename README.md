@@ -6,3 +6,6 @@ I try to lern new knowleges... алелуя!
 
 New realese... 
 
+9-35
+
+Шлак!
